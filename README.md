@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @TurboSprezarkov
+- 👀 I'm interested in motorywzacja
+- 🌱 I'm learning different things at the moment :P
+- 💞️ I cooperate with Sterowanie24.Pl
+- 📫 How To Reach Me Discord: TurboSprezarkov#3603
